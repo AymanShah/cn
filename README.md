@@ -1,1 +1,1 @@
-These notes are solely provided and entrusted by Laxman  👍 
+Laxman is the exclusive provider and custodian of these notes :) 
